@@ -1,4 +1,4 @@
-- ⚡ Java / 易语言.
+- ⚡ Java Web.
 - 🖋 Free creation
 - 🏃 Otaku
 - ♟ Chinese Chess / Three Kingdoms
