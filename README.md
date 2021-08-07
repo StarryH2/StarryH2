@@ -1,5 +1,5 @@
 - ⚡ Java / 易语言.
-- 🖋 Writer at [sspai](https://sspai.com/u/aw0luepf/posts)
-- 🏃 Sailing / Kayak / Scuba Diving / Windsurfing / Table Tennis / Cycling
-- 🥋 Boxing / Tai Chi
-- ♟ Chinese Chess / Chess 
+- 🖋 Free creation
+- 🏃 Otaku
+- ♟ Chinese Chess / Three Kingdoms
+-  
